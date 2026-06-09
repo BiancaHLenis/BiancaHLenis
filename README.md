@@ -1,6 +1,6 @@
 # Hi, I'm Bianca 🫶 🦾 
 
-Economist with a Master's in Economics and a background in Political Science. I like to observe the world, ask questions about it, and spend days or weeks until I find the answers.
+Economist with a Master's in Economics and a background in Political Science. I like to observe the world, ask questions about it, and spend days weeks or months until I find the answers.
 
 When I'm not doing that, I'm watching F1, getting caught up in a football match, reading the classics, eating vanilla ice cream, or going down some rabbit hole about technology.
 
